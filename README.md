@@ -1,0 +1,2 @@
+# ECKqngqIdDrq
+大学新生报到系统
